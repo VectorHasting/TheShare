@@ -20,3 +20,5 @@ Note 4: The work of Hall and Rabushka is also the bases of H-R bill 1040 introdu
 However, that bill ALSO included repealing SUBTITLE B of Title 26, which deals with inheritance tax.
 
 Note 5: Vector Hasting is mounting a 2020 democratic presidential bid to promote this legislation. 
+
+#UniversalBaseIncome #UBI #TheShare #Campaign2020 
